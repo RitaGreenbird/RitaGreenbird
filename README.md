@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RitaGreenbird
-- 👀 I’m interested in Cybersecurity, Interior Designing, Commercial Real Estate, Film TV Scriptwriting Directing, and Ministry.
+- 👀 I’m interested in Cybersecurity, Interior Design, Commercial Real Estate, Acting/ Film/ TV/ Scriptwriting/ Directing, and Ministry.
 - 🌱 I’m currently learning Cybersecurity and Six Sigma Black Belt Expert Level.
-- 💞️ I’m looking to collaborate on any projects for successful completions.
+- 💞️ I’m looking to collaborate on any projects for successful completion.
 - 📫 How to reach me luxorimiracle@gmail.com.
 - 😄 Pronouns: Obliged to Pro Only.
 - ⚡ Fun fact: I love Art expressions, traveling, food creations, creating vids, and customized products.
