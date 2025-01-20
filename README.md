@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RitaGreenbird, my Preferred Name is, "Luxori Miracle Seraphim" I was born in Canada as a Native of the Ojibway tribe.
+- 👋 Hi, I’m @RitaGreenbird, my Preferred Name is, "Luxori Miracle Seraphim"
 - 👀 I’m interested in Cybersecurity, Interior Design, Commercial Real Estate, Acting/ Film/ TV/ Scriptwriting/ Directing, and Online Ministry known as, "Above Thrones International."
 - 🌱 My certification interests have been Harvard's Cybersecurity, Intro to AI with Python, Python Fundamentals for Business Analytics, and Udemy's Lean Six Sigma Black Belt Expert Level.
 - 💞️ I’m looking to collaborate on any projects for successful completion and increased knowledge and insight.
